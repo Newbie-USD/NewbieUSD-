@@ -1,2 +1,0 @@
-# NewbieUSD-
-BieUSD 
